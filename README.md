@@ -1,4 +1,4 @@
-👋 Am Muhammed aka.@ctf0, a self taught musician/designer/technical-author & developer from `Cairo/Egypt`.
+👋 Am Muhammed aka.**ctf0**, a self taught musician/designer/technical-author & developer from `Cairo/Egypt`.
 
 🌱 Building Bridges.
 
